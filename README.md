@@ -1,0 +1,1 @@
+# ai-patner-quiz
